@@ -1,1 +1,1 @@
-My name is Justin Meyer im an IMI Salesforce Cohorte for 12 months
+My name is Justin Meyer from Cape Town im an IMI Salesforce Cohorte for 12 months
