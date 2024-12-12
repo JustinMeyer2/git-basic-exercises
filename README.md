@@ -1,1 +1,1 @@
-My name is Justin Meyer im an IMI Salesforce Cohorte and cannot wait to go to stellenbosch.
+My name is Justin Meyer im an IMI Salesforce Cohorte for 12 months
